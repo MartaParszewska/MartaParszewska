@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @MartaParszewska
+- 👀 I’m interested in: Recruiting IT, Research It and Psychology
+- 📫 How to reach me: marta.parszewska@bulldogjob.pl
+- Are you looking for a job in IT? Text me!
